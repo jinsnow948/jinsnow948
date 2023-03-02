@@ -1,8 +1,5 @@
 - 👋 Hi, I’m @jinsnow948
-- 👀 Running 3km in 10 min. 
-Lifting more than 400 kg in the 3 big workout. I'll do it.
-- 🌱 I'm going to be the cutest boy's daddy soon
-- 💞️ Good luck!!!!
+- 👀 I'm going to be a good daddy, a good husband, and make a lot of money! 
 - 📫 jinsnow948@kakao.com
 
 <!---
